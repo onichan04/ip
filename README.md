@@ -1,0 +1,2 @@
+# ip
+SCRIPT BY @VNZVPN
